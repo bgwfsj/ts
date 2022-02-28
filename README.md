@@ -17,3 +17,7 @@
 [2021年10月读书群群友推书合集](http://http://mp.weixin.qq.com/s?__biz=MzI0OTYwNDc4NQ==&mid=2247484097&idx=1&sn=f106c73ea8609d0254582aadf10d6b29&chksm=e98fbd1fdef83409f4aef7c04d4ff3e2b3edd6aa29915c5a6273934e9beb98222abb2bfa411a#rd)
 
 [2021年11月读书群群友推书合集](http://mp.weixin.qq.com/s?__biz=MzI0OTYwNDc4NQ==&mid=2247484101&idx=1&sn=1cf9bed945833dc4dc442eafb4c7efe2&chksm=e98fbd1bdef8340de4b0a7207d3035084e00b3422dd7b2bc269dcd2c79e09d77acd50cbbde99#rd)
+
+[2021年12月读书群群友推书合集](https://mp.weixin.qq.com/s?__biz=MzI0OTYwNDc4NQ==&mid=2247484105&idx=1&sn=a2141d26541371acfd1e910d41c789a0&chksm=e98fbd17def83401a1800e11bb0cf9de9dbc7452548b4fba0fb90afe46c4f05ed597807b91f9#rd)
+
+[2022年1月读书群群友推书合集](https://mp.weixin.qq.com/s?__biz=MzI0OTYwNDc4NQ==&mid=2247484114&idx=1&sn=f456dfa150259b0c84fbb5043d4fc6b3&chksm=e98fbd0cdef8341ae92bb8b263aff61d4cd4dce95894785318530d4f1a4176686240d9a7d372#rd)
