@@ -25,3 +25,5 @@
 [2022年02月读书群群友推书合集](https://mp.weixin.qq.com/s?__biz=MzI0OTYwNDc4NQ==&mid=2247484118&idx=1&sn=23216471d593c963002634a53a578b32&chksm=e98fbd08def8341e0095357541c02b307a824b6068d9a48ccc35e70c57c012d8b6904efc477a#rd)
 
 [2022年03月读书群群友推书合集](https://mp.weixin.qq.com/s?__biz=MzI0OTYwNDc4NQ==&mid=2247484122&idx=1&sn=81a95f77a969eec1bc8f09a33d75209c&chksm=e98fbd04def83412a7bd3790eef4e748d1887feab30a88f0533b47aa16adde9379bc1424fbb0#rd)
+
+[2022年04月读书群群友推书合集](https://mp.weixin.qq.com/s?__biz=MzI0OTYwNDc4NQ==&mid=2247484126&idx=1&sn=848c07f0b8b4add7500d6d1c3711bc10&chksm=e98fbd00def8341647cecdd7e6d7c257c284d22b91416b2d151dc7038b1756e192501812c175#rd)
